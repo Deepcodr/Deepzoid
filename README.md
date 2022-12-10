@@ -9,4 +9,4 @@ https://twitter.com/Deepcodr
 
 
 
-https://www.linkedin.com/in/deepak-patil-440881201/
+https://www.linkedin.com/in/deepak-patil-/
